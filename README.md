@@ -1,2 +1,2 @@
 # MineCraft-Hacked-Client
-MineCraft Hacked Client
+MineCraft New Hacked Client
